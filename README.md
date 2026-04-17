@@ -1,0 +1,1 @@
+Olá! me chamo Josefa atualmemnte sou estudante do curso de tecnologia de sistemas para internet. Atuo como professora de educação infantil procuro aprender novas habilidades necessarias para criar, testar e manter software sites ou aplicativos que possa somar ao meu trabalho engajando a tecnologia como suporte necessário, buscando melhorar profissionalmente.
